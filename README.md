@@ -1,4 +1,4 @@
-## Pánina bio link para redes sociais
+## Página bio link para redes sociais
 
 https://www.infratechsolutions.tec.br/link/
 
